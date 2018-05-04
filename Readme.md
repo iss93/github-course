@@ -4,4 +4,4 @@ Tutorial do Git
 
 Link do facebook [Igor Silva](http://facebook.com/IgorSiilvaSantana)
 
-Gostou? Quer mais? Me liga.
+Link do twitter [@iss93](http://twitter.com/iss93)
